@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **rajivmahto8864@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ae4rFUggxVErZlNZdkyAdMzWmuCzrTdd/view?usp=sharing](https://drive.google.com/file/d/1ae4rFUggxVErZlNZdkyAdMzWmuCzrTdd/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/10-r5P84cYnvcUNuBySWejjyKcYmcaN4z/view](https://drive.google.com/file/d/10-r5P84cYnvcUNuBySWejjyKcYmcaN4z/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
